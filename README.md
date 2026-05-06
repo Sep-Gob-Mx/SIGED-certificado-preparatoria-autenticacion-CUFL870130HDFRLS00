@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUFL870130HDFRLS00
+CUFL870130HDFRLS00
